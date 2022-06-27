@@ -1,4 +1,9 @@
 ### cara de tralha
+- gabriel /trash
+- 14/15 years
+- ig:trash_kkkjj  // sec: nk.trashzx07
+- tik-tok: @bielzinmaker157
+- modder de zapi
 
 <!--
 **GabrielDutra7/gabrielDutra7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
