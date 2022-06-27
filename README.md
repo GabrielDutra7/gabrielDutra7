@@ -1,4 +1,4 @@
-### cara de tralha
+### d'criakkkkjj
 - gabriel /trash
 - 14/15 years
 - ig:trash_kkkjj  // sec: nk.trashzx07
