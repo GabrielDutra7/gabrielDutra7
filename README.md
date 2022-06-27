@@ -1,4 +1,4 @@
-### Hi there 👋
+### cara de tralha
 
 <!--
 **GabrielDutra7/gabrielDutra7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
