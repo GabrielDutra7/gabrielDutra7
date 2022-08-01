@@ -2,9 +2,10 @@
 - gabriel /trash
 - 14/15 years
 - ig:trash_kkkjj  // sec: nk.trashzx07
-- tik-tok: @bielzinmaker157 felp22 
+- tik-tok: @bielzinmaker157 
 - modder de zapi
-- escutem:"eu nao volto"
+- escutem:felp22 "eu nao volto"
+-
 
 <!--
 **GabrielDutra7/gabrielDutra7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
