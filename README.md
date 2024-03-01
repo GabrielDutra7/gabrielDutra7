@@ -1,10 +1,6 @@
 ### d'criakkkkjj
-- gabriel /trash
-- 15 years
-- ig:trash_kkkjj  // sec: e.o_dutrakrlh
-- tik-tok: @bielzinmaker157 
-- modder de zapi
-- escutem:felp22 "eu nao volto"
+- dutrakkkj
+- tmnc poha
 -
 
 <!--
